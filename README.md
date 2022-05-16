@@ -1,0 +1,1 @@
+# shogistudy_app
